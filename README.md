@@ -37,7 +37,7 @@
 
 ## 💬 Kontak & Dukungan  
 - Telegram: [@xbibzOfficial](https://t.me/XbibzOfficial)  
-- Website: [xbibz-official.site]([https://xbibz-official.site](https://xbibzofficial777.github.io/xbibzofcweb/)) 
+- Website: [xbibz-official.site](https://xbibzofficial777.github.io/xbibzofcweb/)
 - Email: xbibzofficial@gmail.com
 
 ---
