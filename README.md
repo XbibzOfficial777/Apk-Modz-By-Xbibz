@@ -26,7 +26,7 @@
 ## ⚠️ Catatan
 - Mod ini hanya untuk **pengujian pribadi**, harap beli aplikasi asli jika tersedia.  
 - **Xbibz Official** tidak bertanggung jawab atas kerusakan atau banned akun.  
-- Jika menemukan bug, laporkan di [Link Komunitas xbibz].  
+- Jika menemukan bug, laporkan di [ Komunitas xbibz](t.me/XbibzOfficial) 
 
 ---
 
