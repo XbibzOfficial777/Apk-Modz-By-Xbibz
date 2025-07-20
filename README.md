@@ -36,11 +36,11 @@
 ---
 
 ## 💬 Kontak & Dukungan  
-- Telegram: [@xbibzOfficial](https://t.me/xbibzOfficial)  
-- Website: [xbibz-official.site](https://xbibz-official.site) *(Jika ada)*  
-- Email: xbibz.mod@gmail.com  
+- Telegram: [@xbibzOfficial](https://t.me/XbibzOfficial)  
+- Website: [xbibz-official.site]([https://xbibz-official.site](https://xbibzofficial777.github.io/xbibzofcweb/)) 
+- Email: xbibzofficial@gmail.com
 
 ---
 
-**© 2024 xbibz Official**  
+**© 2025 Xbibz Official**  
 *Modifikasi oleh tim xbibz. All rights reserved.*  
